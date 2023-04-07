@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shrutzzzxx
+- 👀 I’m interested in Artificial intelligence and Machine learning
+- 🌱 I’m currently learning B.tech in CSE engineering.
+- 💞️ I’m looking to collaborate on Projects related to AIML
+- 📫 How to reach me @shruti2402004@gmail.com
